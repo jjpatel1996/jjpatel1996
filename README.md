@@ -1,0 +1,5 @@
+- 👋 Hello World, I’m Jay Patel
+- 👀 I’m interested in exploring world
+- 🌱 I’m currently finding my One Thing
+- 📫 How to reach me ... jjpatel1996@gmail.com
+- 👨‍💻 Life Philosophy: Fill your life with experience, not things. Have stories to tell, not stuff to show.
